@@ -15,4 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Usually I can be found ✨trudging through schoolwork✨ but I'd love to connect and get to know more people over [LinkedIn](https://www.linkedin.com/in/scottyunho/)! :)
+Currently trying to learn as much as I humanly can! 
+I'd love to connect and get to know more people over [LinkedIn](https://www.linkedin.com/in/scottyunho/)! :)
