@@ -16,5 +16,4 @@ Here are some ideas to get you started:
 -->
 
 Currently trying to learn as much as I humanly can! 
-
 I'd love to connect and get to know more people over [LinkedIn](https://www.linkedin.com/in/scottyunho/)! :)
