@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Usually I can be found ✨slaving away at schoolwork✨ but I'd love to connect and get to know more people over LinkedIn! :)
+Usually I can be found ✨slaving away at schoolwork✨ but I'd love to connect and get to know more people over [LinkedIn](https://www.linkedin.com/in/scottyunho/)! :)
