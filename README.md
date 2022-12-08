@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 -->
 
 
-I'm currently trying to learn as much as I humanly can! 
+Currently trying to learn as much as I humanly can! 
 
-Because of this, I'd love to connect and hear about any insights over on [LinkedIn](https://www.linkedin.com/in/scottyunho/)! :)
+I'd love to connect and hear about any insights over on [LinkedIn](https://www.linkedin.com/in/scottyunho/)! :)
