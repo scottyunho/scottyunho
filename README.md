@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 -->
 
 
-Currently exploring tech and trying to weave in my love for writing wherever I can. :) 
+Currently exploring tech and trying to weave in my love for writing wherever I can. 💫
 
-I'd love to connect and hear about any insights over on [LinkedIn](https://www.linkedin.com/in/scottyunho/)!
+I'm much more active over on [LinkedIn](https://www.linkedin.com/in/scottyunho/), so feel free to connect with me there. :)
