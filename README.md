@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 -->
 
 
-Currently trying to learn as much as I humanly can! 
+Currently exploring tech and trying to weave in my love for writing wherever I can. :) 
 
-I'd love to connect and hear about any insights over on [LinkedIn](https://www.linkedin.com/in/scottyunho/)! :)
+I'd love to connect and hear about any insights over on [LinkedIn](https://www.linkedin.com/in/scottyunho/)!
